@@ -1,4 +1,4 @@
-#  
+#  sol's rng Scripts updated is the best sol's rng Script, featuring instant win and teleport. Safe and powerful for all your needs.
 
 
 
